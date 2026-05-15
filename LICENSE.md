@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Tensorkocastle25.github.io/7-zip-for-pc-sw84/ ) |
  |---------------------|----------------------:|
 
 
